@@ -1,2 +1,0 @@
-# ken
-I LOVE CODING💻
